@@ -1,1 +1,0 @@
-# vinox.github.io
